@@ -14,3 +14,6 @@
 
 # [- # WhiteCat (1.0) 『CK』 #-](https://www.mediafire.com/file/6250ar1z1jq0aes/-_%2523_WhiteCat_%25281.0%2529_%25E3%2580%258ECK%25E3%2580%258F_%2523-.osk/file) 
 ![](https://cdn.discordapp.com/attachments/448282855286636555/864681495175102464/1573897221_3.png)
+
+# [azr8 - black 2](https://www.mediafire.com/file/hcmj1zmflctryv7/azr8_-_black_2.osk/file)
+![](https://imgur.com/fYSW7eP.png)
